@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ElISuSSY
-- 👀 I’m interested in ...
+- 👀 I’m interested in ...lily
 - 🌱 I’m currently learning ...to make a game 
 - 💞️ I’m looking to collaborate on ... sussy day
 - 📫 How to reach me ...emails
